@@ -1,3 +1,3 @@
-[My list](./HouseSearch/HS IVINSKAYA ALIAKSANDRA.zip).
+[My list](./HouseSearch/HSIVINSKAYAALIAKSANDRA.zip).
 
-[My list](./HS IVINSKAYA ALIAKSANDRA.zip).
+[My list](./HSIVINSKAYAALIAKSANDRA.zip).
